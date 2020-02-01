@@ -9,7 +9,7 @@ Unies, à pois, à rayures, il existe tant de motifs différents. Comment choisi
 ## Les chaussettes unies
 
 Dans le doute, rien ne vaut une bonne paire de chaussettes unies. Impossible de se tromper.
-
+ii
 Évidemment, vous risquez aussi de passer pour qelqu'un qui manque de fantaise…
 
 ## Les chaussettes à rayures
